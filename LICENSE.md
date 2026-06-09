@@ -1,4 +1,4 @@
-#  
+#  new survive the apocalypse Script is the best survive the apocalypse Script, featuring auto-upgrade and aimbot. Safe and powerful for all your needs.
 
 
 
